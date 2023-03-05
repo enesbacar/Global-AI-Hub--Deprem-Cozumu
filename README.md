@@ -1,0 +1,1 @@
+# Global-AI-Hub--Deprem-Cozumu
